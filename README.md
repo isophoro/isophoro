@@ -1,1 +1,2 @@
-hi im iso i have fnf brainrot
+### hi im isophoro
+#### i program n stuff,,,, mostly fnf mods
